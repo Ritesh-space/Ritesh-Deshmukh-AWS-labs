@@ -1,1 +1,0 @@
-# Ritesh-Deshmukh-AWS-labs
